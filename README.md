@@ -1,0 +1,2 @@
+# Oblig2Generativ-ai
+ 
